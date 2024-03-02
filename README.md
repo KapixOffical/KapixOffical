@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @KapixOffical
 - I'm programmer
 - 📫 How to reach me:
-Discord - Kapix#2995
+Discord - Kapix2995
 
 
 <!---
